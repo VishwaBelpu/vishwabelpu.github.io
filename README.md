@@ -14,5 +14,4 @@ vishwa.belpu
 
 ##Websites I recommend
     - [Exclusive Car Registry] (https://exclusivecarregistry.com/) - This website can be used to track down the current status and location of several rare cars in the world, ranging from Porsche GT3RS all the way to McLaren F1s. It's a cool website that was made very recently it seems.
-
     - [Instagram] (https://www.instagram.com/) - I find Instagram very interesting because of the fact that it allows people to keep others updated about their personal life as well as share interesting places they've been to. I use Instagram to post my car photos as well as the places that I've been to. Over the summer, I went to Canada and got to share a picture of a glacier on top of a mountain. 
